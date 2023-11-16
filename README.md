@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bruzewskis
+- 👋 Hi, I’m @ProfundityofScope
 - 👀 I’m interested in science and space
 - 🌱 I’m currently learning how the heck Pages works
 - 💞️ I’m looking to collaborate on space stuff
